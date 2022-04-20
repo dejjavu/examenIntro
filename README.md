@@ -1,1 +1,1 @@
-# examenIntro
+Ignacio Poma
